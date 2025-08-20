@@ -1,1 +1,0 @@
-# mocklet-privacy-policy
